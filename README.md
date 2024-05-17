@@ -12,5 +12,5 @@ Sthefanycatarinasiqueiradecami@gmail.com
 
 @sthefanydecamilo
 
-!.[_].(https://media1.tenor.com/m/mCiM7CmGGI4AAAAC/naruto.gif)
+![](https://media1.tenor.com/m/mCiM7CmGGI4AAAAC/naruto.gif)
 
